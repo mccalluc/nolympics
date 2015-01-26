@@ -1,49 +1,49 @@
-They say the Olympics
-will turn a profit,
-except when you look close,
-their facts don't quite fit.
+They say the Olympics<br>
+will turn a profit,<br>
+except when you look close,<br>
+their facts don't quite fit.<br>
 
-Don't look at Sochi,
-and not at Beijing,
-and Montreal neither.
-You should get the swing.
+Don't look at Sochi,<br>
+and not at Beijing,<br>
+and Montreal neither.<br>
+You should get the swing.<br>
 
-But those ones don't matter,
-that's what they'll tell you.
-"America's better."
-Let's look at a few.
+But those ones don't matter,<br>
+that's what they'll tell you.<br>
+"America's better."<br>
+Let's look at a few.<br>
 
-In 1980,
-at Lake Placid,
-the hillsides were white,
-but they were deep in the red.
+In 1980,<br>
+at Lake Placid,<br>
+the hillsides were white,<br>
+but they were deep in the red.<br>
 
-So the state of New York
-took over the debt
-(along with the ski jumps):
-It's losing cash yet.
+So the state of New York<br>
+took over the debt<br>
+(along with the ski jumps):<br>
+It's losing cash yet.<br>
 
-For the '84 'lympics
-only two cities ran:
-It went to Los Angeles,
-but imagine Tehran.
+For the '84 'lympics<br>
+only two cities ran:<br>
+It went to Los Angeles,<br>
+but imagine Tehran.<br>
 
-The IOC asked for
-brand new stadia.
-LA had the leverage
-to just tell them "Nah".
+The IOC asked for<br>
+brand new stadia.<br>
+LA had the leverage<br>
+to just tell them "Nah".<br>
 
-Atlanta did OK:
-Made money no doubt.
-If a logo could fit there
-they'd sure sell it out.
+Atlanta did OK:<br>
+Made money no doubt.<br>
+If a logo could fit there<br>
+they'd sure sell it out.<br>
 
-Salt Lake had looked desperate,
-till Mitt Romney jumped in,
-Maybe he'd repeat,
-but let's not call him in.
+Salt Lake had looked desperate,<br>
+till Mitt Romney jumped in,<br>
+Maybe he'd repeat,<br>
+but let's not call him in.<br>
 
-They say the Olympics
-will turn a profit,
-except when you look close,
-their facts don't quite fit.
+They say the Olympics<br>
+will turn a profit,<br>
+except when you look close,<br>
+their facts don't quite fit.<br>
