@@ -3,9 +3,9 @@
 Massachusetts,<br>
 they've confused us<br>
 with a picture so sublime.<br>
-Watch your wallet;<br>
-they will want it<br>
-in a moment, give them time.<br>
+Watch your wallet.<br>
+They will want it<br>
+in a moment; give them time.<br>
 
 How the traffic<br>
 won't be hectic,<br>
@@ -25,11 +25,11 @@ A referendum<br>
 wouldn't be dumb,<br>
 really quite the contrary.<br>
 If it's open<br>
-we should vote then<br>
-why not try democracy?<br>
+we should vote then.<br>
+Why not try democracy?<br>
 
 And security,<br>
-That's a surety:<br>
+that's a surety:<br>
 The Feds are in control.<br>
 Just because it's<br>
 different budgets<br>
@@ -52,8 +52,8 @@ but the renters got priced out.<br>
 Now when London<br>
 went and jumped in,<br>
 their first bid was priced like ours...<br>
-but the budget<br>
-didn't quite fit<br>
+final budget<br>
+didn't quite fit,<br>
 neither pounds nor work hours<br>
 
 Their arena:<br>
@@ -66,6 +66,6 @@ Are they real, or just decoys?<br>
 Massachusetts,<br>
 they've confused us<br>
 with a picture so sublime.<br>
-Watch your wallet;<br>
-they will want it<br>
-in a moment, give them time.<br>
+Watch your wallet.<br>
+They will want it<br>
+in a moment; give them time.<br>
