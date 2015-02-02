@@ -1,3 +1,5 @@
+*To the tune of "On Top of Spaghetti"*
+
 They say the Olympics<br>
 will turn a profit,<br>
 except when you look close,<br>
