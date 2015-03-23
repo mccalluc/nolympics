@@ -12,6 +12,8 @@ Watch your wallet.<br>
 They will want it<br>
 in a moment; give them time.<br>
 
+<!--more-->
+
 How the traffic<br>
 won't be hectic,<br>
 how the trains will run on time?<br>

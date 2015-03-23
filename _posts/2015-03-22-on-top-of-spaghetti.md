@@ -10,6 +10,8 @@ will turn a profit,<br>
 except when you look close,<br>
 their facts don't quite fit.<br>
 
+<!--more-->
+
 Don't look at Sochi,<br>
 and not at Beijing,<br>
 and Montreal neither.<br>
