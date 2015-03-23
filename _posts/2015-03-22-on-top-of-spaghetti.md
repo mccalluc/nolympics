@@ -1,3 +1,8 @@
+---
+layout: default
+title: They Say the Olympics
+---
+
 *To the tune of "On Top of Spaghetti"*
 
 They say the Olympics<br>

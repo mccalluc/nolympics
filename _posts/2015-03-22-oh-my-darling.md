@@ -1,3 +1,8 @@
+---
+layout: default
+title: Massachusetts, They've Confused Us
+---
+
 *To the tune of "Oh my darling Clementine"*
 
 Massachusetts,<br>
